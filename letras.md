@@ -2,4 +2,4 @@
 
 Her name is Lolo 
 and she ahlikes to play rock,
-la la dirty sock!
+got a dirty sock!!
